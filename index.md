@@ -11,3 +11,6 @@ Hulk ist die Titelfigur aus den gleichnamigen Marvel-Comics. Die erste Ausgabe w
 
 ## Zitat
 > Weißt du was mir am meisten Angst macht? Wenn ich nicht mehr dagegen ankämpfen kann und total die Kontrolle verliere, dann... genieße ich das. - Gefunden auf: https://www.myzitate.de/hulk/
+
+<img src="https://www.pngarts.com/files/2/Hulk-Free-PNG-Image.png" />
+
