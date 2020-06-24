@@ -7,3 +7,4 @@ Hulk ist die Titelfigur aus den gleichnamigen Marvel-Comics. Die erste Ausgabe w
 * Groß
 * Stark
 * Selbstheilend
+* Doof
